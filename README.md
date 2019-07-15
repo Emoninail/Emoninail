@@ -1,0 +1,2 @@
+# Emoninail
+Nail Fungus, or Dermatophytic Onychomycosis, is the most common disease of the nails – affecting nearly 12% of all adults. Nail Fungus is caused when fungal spores (dermaphytes) gain access to the area around and under the nail plate of the finger or toe. This area, known as the nail bed is normally protected by your nail, however when fungus is able to gain access, the nail will act to protect the growing fungal infection! This is what makes Nail Fungus a notoriously difficult condition to properly treat.
